@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @LegallyGeek
 - 👀 I’m interested in 🥁 🏃🏽‍♀️ 👩🏻‍💻 ⚖️
-- 🌱 I’m currently learning to be 10x
+- 🌱 I’m currently learning about... a bunch of things
 - 📫 How to reach me ... email 🤷‍♀️
